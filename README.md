@@ -1,4 +1,4 @@
-# Perfil_academico de Nataly Montoya
+# Perfil académico de Nataly Montoya Campos
 
 Perfil académico de Nataly Montoya
 
