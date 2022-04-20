@@ -1,2 +1,2 @@
 # Perfil_academico
-Perfil academico Nataly Montoya
+Estudiante de la Escuela de Geografia de la Universidad de Costa Rica 
