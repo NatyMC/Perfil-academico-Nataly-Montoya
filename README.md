@@ -2,7 +2,7 @@
 
 ## Información personal 
 Nataly Montoya Campos  
-Carné: C00000
+Carné: C00000  
 Estudiante de la Universidad de Costa Rica  
 Estudiante tercer año de pregrado, Bachillerato y Licenciatura en Geografía
   
